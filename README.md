@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning meth cooking
 - 💞️ I’m looking to collaborate on creating crystal meth
 - 📫 How to reach me XD
-- i'm an alcoholic
+- i'm an alcoholic and  a schizo
 
 <!---
 cptihar/cptihar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
